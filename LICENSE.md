@@ -1,4 +1,4 @@
-
+updated break a brainrot egg Scripts is the best break a brainrot egg Script, featuring auto-sell and undetectable. Safe and powerful for all your
 
 
 
